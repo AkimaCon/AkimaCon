@@ -31,4 +31,4 @@ Full list: [Google Scholar](https://scholar.google.com/citations?hl=en&user=DRDo
 
 Wrapping up my dissertation (Sep 2026) and open to Applied Scientist / ML Engineer / Research Scientist roles in the US and Japan — no visa sponsorship required for either.
 
-[LinkedIn](https://linkedin.com/in/akima-connelly) · akimaconnelly@gmail.com
+[LinkedIn](https://linkedin.com/in/akima-connelly)
